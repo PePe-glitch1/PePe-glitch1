@@ -3,7 +3,7 @@
 ## 📱 Android Developer focusing on modern mobile applications  
 
 **📍 Ukraine**  
-**📧 Email:** [danilbarabash@icloud.com](mailto:danilbarabash@icloud.com)  
+**📧 Email:** [danilbarabash@icloud.com](mailto:danilbarabash9999@gmail.com)  
 **🔗 LinkedIn:** [-](https://linkedin.com/in/your-linkedin-profile)  
 **👨‍💻 GitHub:** [PePe-glitch1](https://github.com/PePe-glitch1)  
 
